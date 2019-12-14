@@ -1,2 +1,2 @@
 # Adventure
-BETA TESTERS ONLY!
+Nothing here yet xd
